@@ -6,7 +6,7 @@
 - Linkedin :- linkedin.com/in/vasu-jindal-4a6773233
 
 
-foloow this link to see Holopins Batches that I have earned :- 
+Holopins Batches that I have earned :- 
 
 [![@vjindal98's Holopin board](https://holopin.me/vjindal98)](https://holopin.io/@vjindal98)
 
